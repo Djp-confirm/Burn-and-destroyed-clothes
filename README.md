@@ -1,1 +1,0 @@
-# Burn-and-destroyed-clothes
